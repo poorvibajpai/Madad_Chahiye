@@ -113,8 +113,8 @@ We welcome contributions! 🚀 Feel free to submit pull requests, report issues,
 ---
 
 ### 🔗 Stay Connected
-📧 Email: [your-email@example.com](ahamadwork2426@gmail.com)  
-📧 Email: [your-email@example.com](lupoorvi09@gmail.com)  
+📧 Email: [Ahamad Ali](mailto:ahamadwork2426@gmail.com)   
+📧 Email: [Poorvi](mailto:lupoorvi09@gmail.com)  
 
 ---
 
