@@ -118,4 +118,4 @@ We welcome contributions! 🚀 Feel free to submit pull requests, report issues,
 
 ---
 
-Made with ❤️ by **[Your Name]** 🚀
+Made with ❤️ by **Ahamad & Poorvi** 🚀
